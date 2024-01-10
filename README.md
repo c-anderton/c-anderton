@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @c-anderton
-- 👀 I’m interested in arts and manga
+- 👀 I’m interested in many things
 - 🌱 I’m currently learning coding, it is a new venture for me!
 - 💞️ I’m looking to collaborate on future projects
 - 📫 How to reach me by email
